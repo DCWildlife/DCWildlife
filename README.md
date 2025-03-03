@@ -13,7 +13,8 @@ I'm a biologist with a strong interest in bioinformatics and data science, prima
 
 I'm always looking to collaborate on projects related to bioinformatics, ecological data analysis, and open science initiatives. If you're working on something exciting in these fields, feel free to reach out!
 📫 Let's Connect:
-
+www.linkedin.com/in/davide-carniato4195
+email: carniato.davide95@gmail.com
 
 Let's work together to make data-driven ecology more accessible and impactful! 🚀
 
